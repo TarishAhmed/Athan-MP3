@@ -29,3 +29,20 @@ Athan, الاذان
 الله أكبر ، الله أكبر Allah is Great, Allah is Great
 
 لا إله إلا الله There is no God But Allah 
+
+
+External Adhans
+
+Mishary Rashid Alafasy: https://cdn.aladhan.com/audio/adhans/a4.mp3
+
+Mishary Rashid Alafasy 2: https://cdn.aladhan.com/audio/adhans/a7.mp3
+
+Mishary Rashid Alafasy 3: https://cdn.aladhan.com/audio/adhans/a9.mp3
+
+Mansour Al Zahrani: https://cdn.aladhan.com/audio/adhans/a11-mansour-al-zahrani.mp3
+
+Hafiz Mustafa Ozcan: https://cdn.aladhan.com/audio/adhans/a2.mp3
+
+Karl Jenkins: https://cdn.aladhan.com/audio/adhans/a3.mp3
+
+Ahmad Al Nafees: https://cdn.aladhan.com/audio/adhans/a1.mp3
